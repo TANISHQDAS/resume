@@ -1,1 +1,1 @@
-Link for the resume - https://tanishqdas.github.io/resume/
+Link for the Resume - https://tanishqdas.github.io/resume/
